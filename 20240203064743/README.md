@@ -1,4 +1,0 @@
-vvvvvvvvvvvvvv
-post2
-ㅔㅐㄴㅅ333
-ㅔ
